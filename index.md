@@ -1,6 +1,6 @@
 ## Hi! Im Kaja ♡
 
-I'm 20 years old and I study on [AGH](https://www.agh.edu.pl/) majoring in Informatics and Intelligent Systems. I'm not sure what I'm doing here, but it is what it is.
+I'm 21 years old and I study on [AGH](https://www.agh.edu.pl/) majoring in Informatics and Intelligent Systems. I'm currently looking for a job in the industry. In free time i crochet adorable plushys.
 
 ### Something not to be so empty here 
 
